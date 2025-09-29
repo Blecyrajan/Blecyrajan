@@ -18,7 +18,7 @@
 ---
 
 ## 🌐 Connect with Me
-[![Email](https://img.shields.io/badge/Email-D14836?style=flat&logo=gmail&logoColor=white)](mailto:blecyrajan2002@gmail.com)  
+(mailto:blecyrajan2002@gmail.com)  
 
 ---
 
