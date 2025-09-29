@@ -18,7 +18,7 @@
 ---
 
 ## 🌐 Connect with Me
-(mailto:blecyrajan2002@gmail.com)  
+blecyrajan2002@gmail.com  
 
 ---
 
